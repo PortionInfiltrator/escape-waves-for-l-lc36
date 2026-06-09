@@ -1,4 +1,4 @@
-
+best escape waves for lucky blocks Script is the best escape waves for lucky blocks Script, featuring auto-collect and god mode. Safe and powerful
 
 
 
